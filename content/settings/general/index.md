@@ -1,7 +1,7 @@
 +++
 headless = true
 title = "Luana Rentschler"
-description = "A Lifelong Journey"
+description = "Journey about me"
 footerLeft = "Powered by 💜 [Lilo.page](https://www.lilo.page)"
 footerRight = "🏷️ [Tags](/tags/) | 🗃️ [Archive](/posts/)"
 +++
