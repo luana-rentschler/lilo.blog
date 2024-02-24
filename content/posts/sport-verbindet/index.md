@@ -3,7 +3,7 @@ title = "Sport verbindet"
 date = "2024-02-24"
 draft = false
 pinned = true
-tags = ["PluSport"]
+tags = ["PluSport", "Menschenerfolg"]
 image = "bild1.jpg"
 description = "Gilles Bigler beweist trotz Sehnerv-Atrophie, das Aufgeben keine Option ist. Mit beeindruckendem Durchhaltevermögen, Willenskraft und der Unterstützung von PluSport überwindet er seine Krise nach der niederschmetternden Diagnose."
 +++
