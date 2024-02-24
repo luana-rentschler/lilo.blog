@@ -9,7 +9,7 @@ description = "Gilles Bigler beweist trotz Sehnerv Atrophie, das Aufgeben keine 
 +++
 {{<lead>}}
 
-Gilles Bigler beweist trotz Sehnerv Atrophie, das Aufgeben keine Option ist. Mit beeindruckendem Durchhaltevermögen, Willenskraft und der Unterstützung von PluSport überwindet er seine Krise nach der niederschmetternden Diagnose.
+Gilles Bigler beweist trotz Sehnerv-Atrophie, das Aufgeben keine Option ist. Mit beeindruckendem Durchhaltevermögen, Willenskraft und der Unterstützung von PluSport überwindet er seine Krise nach der niederschmetternden Diagnose.
 
 {{</lead>}}
 
@@ -37,7 +37,6 @@ Der grösste und wichtigste Anlass ist der jährliche stattfindende PluSport-Tag
 
 **Reto Planzer**
 
-
 Sein erster Berührungspunkt mit der Organisation PluSport erfolgte im Sportstudium an der Eidg. Hochschule für Sport in Magglingen, als er 2019 im Rahmen des Fachstudiums Adapted Physical Activity (APA) ein Praktikum in einem Wintersportcamp für Erwachsene mit geistiger Beeinträchtigung bei PluSport gemacht hat. Besonders Freude an seinem Job macht ihm das soziale Engagement im Bereich Bewegung und Sport und dass er mit seiner Arbeit dazu beiträgt, Menschen mit einer Beeinträchtigung einen verbesserten Zugang zu Bewegung und Sport in der Schweizer Sportlandschaft zu ermöglichen. Seine Funktionen bei PluSport sind sehr vielfältig. Neben der Betreuung der Kooperation mit Sportverbänden und -akteuren organisiert und leitet er Weiterbildungskurse. Zudem hat er die Projektleitung für die Projekte «Never Walk Alone» und «PluSport@school».
 
 {{</box>}}
@@ -51,7 +50,6 @@ Die Gesellschaft sowie das Sportsystem Schweiz ist gefordert, mehr zu investiere
 {{<box>}}
 
 **PluSport@school**
-
 
 Dieses Projekt hat zum Ziel, das Schülerinnen und Schüler mit Beeinträchtigung möglichst am obligatorischen Sportunterricht in Regelschulen mitmachen können. Damit dies gelingt, ist eine diversitätssensible Einstellung der Sportlehrpersonen und der Schule zentral. Hier unterstützt PluSport mit verschiedenen Dienstleistungen, wie zum Beispiel Praxisworkshops mit Botschafter*innen, Weiterbildungen für Betreuungs- und Lehrpersonen oder Mitorganisation eines Sporttages.
 
