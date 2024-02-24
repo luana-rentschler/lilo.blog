@@ -28,9 +28,7 @@ Die Hiobsbotschaft war ein harter Schlag für ihn und seine Familie. In einer Kl
 Nicht nur seinen Alltag musste Gilles neu gestalten, auch beim Laufen gab es zunehmend Schwierigkeiten und Hürden zu überwinden. So muss er, je nach Strecke, das Tempo anpassen, da er nur bis zu zwei Metern eine scharfe Sicht hat. Beim Laufen spielen aber auch die Lichtverhältnisse eine wichtige Rolle. 
 Aufgeben war für Gilles nie eine Option. Heute merkt man seiner aufgestellten Art und motivierenden Einstellung kaum an, was er durchgemacht hat.
 
-![]()
-
-
+![Abendstimmung an der Aare - Gilles Bigler in seinem Training (Foto: Luana Rentschler)](whatsapp-bild-2024-02-24-um-18.05.18_e80faeea.jpg "Gilles Bigler")
 
 #### Sport ohne Grenzen
 
