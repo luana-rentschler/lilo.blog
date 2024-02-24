@@ -15,6 +15,14 @@ Laufsport zählt zu den beliebtesten Sportarten in der Schweiz. An Laufsportvera
 
 Nea Hofer und Luana Rentschler
 
+
+
+Kurzlebenslauf
+RETO PLANZER
+Sein erster Berührungspunkt im Bereich des Behindertensportes begann während seines Sportstudium im Jahre 2009, als er im Rahmen des Fachstudiums Adapted Physical Activity (APA) ein Praktikum bei PluSport absolviert hat. Dort war der erste direkte Kontakt mit der Organisation in einem Wintersportcamp für geistig Beeinträchtigte Erwachsene. 2014 zog er von Bern nach Zug um und suchte in Zürich nach Arbeit, was ihn schliesslich zum Dach-verband PluSport führte. Dort ist er heute im Bereich Inklusion als Fachspezialist tätig.
+
+
+
 ![Foto: ZVG Reto Planzer](bild1.jpg "Reto Planzer")
 
 
