@@ -53,6 +53,6 @@ Dann gibt es Angebote für Menschen, die weniger stark beeinträchtigt sind und 
 {{<box>}}
 
 **Reto Planzer**
-Sein erster Berührungspunkt im Bereich des Behindertensportes begann während seines Sportstudium im Jahre 2009, als er im Rahmen des Fachstudiums Adapted Physical Activity (APA) ein Praktikum bei PluSport absolviert hat. Dort war der erste direkte Kontakt mit der Organisation in einem Wintersportcamp für geistig Beeinträchtigte Erwachsene. 2014 zog er von Bern nach Zug um und suchte in Zürich nach Arbeit, was ihn schliesslich zum Dach-verband PluSport führte. Dort ist er heute im Bereich Inklusion als Fachspezialist tätig.
+Sein erster Berührungspunkt im Bereich des Behindertensportes begann während seines Sportstudium im Jahre 2009, als er im Rahmen des Fachstudiums Adapted Physical Activity (APA) ein Praktikum bei PluSport absolviert hat. Dort war der erste direkte Kontakt mit der Organisation in einem Wintersportcamp für geistig Beeinträchtigte Erwachsene. 2014 zog er von Bern nach Zug um und suchte in Zürich nach Arbeit, was ihn schliesslich zum Dachverband PluSport führte. Dort ist er heute im Bereich Inklusion als Fachspezialist tätig.
 
 {{</box>}}
