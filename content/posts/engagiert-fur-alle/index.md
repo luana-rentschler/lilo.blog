@@ -17,10 +17,6 @@ Nea Hofer und Luana Rentschler
 
 
 
-Kurzlebenslauf
-RETO PLANZER
-Sein erster Berührungspunkt im Bereich des Behindertensportes begann während seines Sportstudium im Jahre 2009, als er im Rahmen des Fachstudiums Adapted Physical Activity (APA) ein Praktikum bei PluSport absolviert hat. Dort war der erste direkte Kontakt mit der Organisation in einem Wintersportcamp für geistig Beeinträchtigte Erwachsene. 2014 zog er von Bern nach Zug um und suchte in Zürich nach Arbeit, was ihn schliesslich zum Dach-verband PluSport führte. Dort ist er heute im Bereich Inklusion als Fachspezialist tätig.
-
 
 
 ![Foto: ZVG Reto Planzer](bild1.jpg "Reto Planzer")
@@ -31,12 +27,6 @@ PluSport wurde gegründet, um in der Schweiz Sportangebote und Sportleistungen f
 
 #### Welche Arbeiten übernimmst du bei PluSport? 
 Diese sind aktuell sehr vielfältig. Im Moment betreue ich vor allem die Kooperationen mit Sportverbänden. Ich bin auch in regelmässigem Kontakt mit der Fachstelle Inklusion von Swiss Olympics. Daneben organisiere ich Aus- und Weiterbildungskurse für PluSport und leite diese auch. Unter anderem habe ich die Leitung für das Projekt «never Walk alone» oder für «PluSport@School», das sind Dienstleistungen die wir für die Schulen anbieten. 
-
-{{<box>}}
-
-Sein erster Berührungspunkt im Bereich des Behindertensportes begann während seines Sportstudium im Jahre 2009, als er im Rahmen des Fachstudiums Adapted Physical Activity (APA) ein Praktikum bei PluSport absolviert hat. Dort war der erste direkte Kontakt mit der Organisation in einem Wintersportcamp für geistig Beeinträchtigte Erwachsene. 2014 zog er von Bern nach Zug um und suchte in Zürich nach Arbeit, was ihn schliesslich zum Dach-verband PluSport führte. Dort ist er heute im Bereich Inklusion als Fachspezialist tätig.
-
-{{</box>}}
 
 #### Was waren die Hauptziele bei der Gründung und wie haben diese sich mit der Zeit verändert?
 PluSport wurde 1960 gegründet, um in der Schweiz Sportangebote und Sportleistungen für Menschen mit einer Beeinträchtigung anzubieten. Dies gehört noch heute zum Kerngeschäft. PluSport unterscheidet sich insofern von anderen Organisationen wie, der schweizerischen Paraplegien Versicherung oder Rollstuhlsport Schweiz, dass viele Menschen mit unterschiedlichen Beeinträchtigungen Unterstützung bekommen. Bei uns treiben Rollstuhlfahrende Sport, Leute mit Amputationen, mit einer Geistigen Beeinträchtigung oder mit Autismus. Für diese organisieren wir Sportangebote. In den letzten Jahren sind mehr Dienstleistungen dazu gekommen, beispielsweise das Projekt «never Walk alone».
