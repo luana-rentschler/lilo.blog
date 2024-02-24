@@ -4,7 +4,7 @@ date = "2024-02-24"
 draft = false
 pinned = true
 tags = ["PluSport"]
-image = "bild1.jpg"
+image = "infobox.png"
 description = "Laufsport zählt zu den beliebtesten Sportarten in der Schweiz. An Laufsportveranstaltung können Alle zusammenlaufen und das ist das Schöne."
 +++
 {{<lead>}}
