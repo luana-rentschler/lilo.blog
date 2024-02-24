@@ -43,11 +43,11 @@ Auf der anderen Seite werden wir von Eltern angefragt, die ein Kind mit einer Be
 Ich bin mit meiner Erfahrung so weit, dass ich sage, klar gibt es noch viel zu tun. Die Schweiz ist noch nicht so weit wie andere Länder. Jedoch wurde aber auch schon viel getan. Ein Grund ist, dass wir keine Kriegsvergangenheit haben, wie zum Beispiel England oder Deutschland. In der Schweiz hat die Inklusion erst später angefangen und deswegen muss man auch etwas Geduld mitbringen.
 
 ####Es gibt das Laufprojekt «Never Walk Alone», was genau ist die Idee davon und wieso gestaltet sich gerade so ein Anlass attraktiv für Beeinträchtigte Sportler*innen? 
-Laufsport zählt zu den beliebtesten Sportarten in der Schweiz. An dieser Veranstaltung kön-nen Alle zusammenlaufen, mit oder ohne Beeinträchtigung und das ist das Schöne. 
+Laufsport zählt zu den beliebtesten Sportarten in der Schweiz. An dieser Veranstaltung können Alle zusammenlaufen, mit oder ohne Beeinträchtigung und das ist das Schöne. 
 
 
 #### Welche Herausforderungen gibt es? 
-Die Herausforderung ist, genug Geld zu bekommen. PluSport ist ungefähr zu 30 Prozent durch Spenden finanziert. Wir sind auch eine Mitgliederorganisation. Dann gibt es noch das Fundraising, das macht für uns eine spezialisierte Firma. Des Weiteren ist jemanden ange-stellt, der sich um die Mittelbeschaffung kümmert. Es werden Projekteingaben bei Stiftungen gemacht, um Geldbeträge zu erhalten. Dafür muss man Ziele definieren und das Projekt muss zweckmässig sein. 
+Die Herausforderung ist, genug Geld zu bekommen. PluSport ist ungefähr zu 30 Prozent durch Spenden finanziert. Wir sind auch eine Mitgliederorganisation. Dann gibt es noch das Fundraising, das macht für uns eine spezialisierte Firma. Des Weiteren ist jemanden angestellt, der sich um die Mittelbeschaffung kümmert. Es werden Projekteingaben bei Stiftungen gemacht, um Geldbeträge zu erhalten. Dafür muss man Ziele definieren und das Projekt muss zweckmässig sein. 
 
 #### Wie plant PluSport sich weiterzuentwickeln?
 PluSport ist bestrebt, noch stärker mit dem Sportsystem zusammenzuarbeiten. PluSport wird wahrscheinlich immer eine sogenannte Daseinsberechtigung haben, da es mit viel Aufwand verbunden ist stark beeinträchtigte Menschen zu inkludieren. Beispielsweise für ein*e Tetraplegiker*in im Elektrorollstuhl braucht es Separative Angebote, so können diese untereinander Sport treiben. 
