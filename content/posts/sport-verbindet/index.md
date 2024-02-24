@@ -5,7 +5,7 @@ draft = false
 pinned = true
 tags = ["PluSport"]
 image = "bild1.jpg"
-description = "Gilles Bigler beweist trotz Sehnerv Atrophie, das Aufgeben keine Option ist. Mit beeindruckendem Durchhaltevermögen, Willenskraft und der Unterstützung von PluSport überwindet er seine Krise nach der niederschmetternden Diagnose."
+description = "Gilles Bigler beweist trotz Sehnerv-Atrophie, das Aufgeben keine Option ist. Mit beeindruckendem Durchhaltevermögen, Willenskraft und der Unterstützung von PluSport überwindet er seine Krise nach der niederschmetternden Diagnose."
 +++
 {{<lead>}}
 
@@ -24,7 +24,7 @@ So macht auch Gilles Bigler jedes Jahr an diesem Lauf mit. «Ich liebe solche Vo
 #### Überwindung durch Bewegung
 
 Gilles Bigler betreibt seit 14 Jahren Laufsport und führt ein ganz normales Leben. Vor einigen Jahren erhielt er die Diagnose einer Sehnerv-Atrophie, dies ist eine degenerative Erkrankung mit zunehmendem Schwund des Sehnervs. Heute ist Gilles’ Visus eingeschränkt und er sieht verschwommen.
-Die Hiobsbotschaft war ein harter Schlag für ihn und seine Familie. In einer Klinik konnte er sei-ne anfängliche Hoffnungslosigkeit überwinden und wieder Fuss fassen. Er musste sich beruflich neu orientieren und wechselte vom Schreibtisch zu einer Massageliege. Als Masseur kann Gilles die Augen schliessen und über seinen Tastsinn arbeiten. Nebst der Arbeit als Therapeut engagiert sich Gilles bei der Firma Menschenerfolg und begleitet Personen, welche in einer Krise stecken oder mit mehr Energie durchs Leben gehen wollen. Wie er selbst auf seiner Homepage beschreibt: «Mit meinen Angeboten befähige ich Menschen, ihr Leben proaktiv und freudvoll zu gestallten und sich vital und stark zu fühlen».
+Die Hiobsbotschaft war ein harter Schlag für ihn und seine Familie. In einer Klinik konnte er seine anfängliche Hoffnungslosigkeit überwinden und wieder Fuss fassen. Er musste sich beruflich neu orientieren und wechselte vom Schreibtisch zu einer Massageliege. Als Masseur kann Gilles die Augen schliessen und über seinen Tastsinn arbeiten. Nebst der Arbeit als Therapeut engagiert sich Gilles bei der Firma Menschenerfolg und begleitet Personen, welche in einer Krise stecken oder mit mehr Energie durchs Leben gehen wollen. Wie er selbst auf seiner Homepage beschreibt: «Mit meinen Angeboten befähige ich Menschen, ihr Leben proaktiv und freudvoll zu gestallten und sich vital und stark zu fühlen».
 Nicht nur seinen Alltag musste Gilles neu gestalten, auch beim Laufen gab es zunehmend Schwierigkeiten und Hürden zu überwinden. So muss er, je nach Strecke, das Tempo anpassen, da er nur bis zu zwei Metern eine scharfe Sicht hat. Beim Laufen spielen aber auch die Lichtverhältnisse eine wichtige Rolle. 
 Aufgeben war für Gilles nie eine Option. Heute merkt man seiner aufgestellten Art und motivierenden Einstellung kaum an, was er durchgemacht hat.
 
