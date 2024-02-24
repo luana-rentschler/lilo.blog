@@ -34,9 +34,9 @@ Aufgeben war für Gilles nie eine Option. Heute merkt man seiner aufgestellten A
 
 «Never walk alone» ist eines der erfolgreichsten Inklusionsprojekte von PluSport. Das Ziel ist es, dass sich kleinere sowie grössere Laufveranstaltungen immer mehr für Menschen mit Beeinträchtigung öffnen. Immer mehr Veranstalter sind bereit mitzumachen und es kommen ständig neue dazu, mittlerweile sind es über 80 in der Schweiz. Die Idee hinter solchen Läufen ist die Inklusion von Beeinträchtigten. So können Menschen mit und ohne Beeinträchtigung zusammen laufen, sich bewegen und messen. 
 
-*«Das ist das Schöne»* 
-
-*\- meint Reto Planzer, Fachspezialist Inklusion*
+> *«Das ist das Schöne»* 
+>
+> *\- meint Reto Planzer, Fachspezialist Inklusion*
 
 Der grösste und wichtigste Anlass ist der jährliche stattfindende PluSport-Tag in Magglingen. 1000 Sportbegeisterte treiben zusammen Sport und messen sich in unterschiedlichen Wettkämpfen. Ein solches Happening ist jedes Jahr wieder ein Highlight, auch für Mitarbeitende wie Reto Planzer. Wie Reto Planzer sagt, ist es extrem schön die PluSportler*innen persönlich zu treffen, mit denen man sonst nur telefonisch oder schriftlich in Kontakt ist. Der persönliche Austausch ist sehr wichtig für eine gute Zusammenarbeit und dieser wird vor allem an solchen Anlässen gepflegt. Die Finanzierung solcher Projekte ist nicht immer einfach. Heute wird PluSport ungefähr zu 30 Prozent durch Spenden finanziert, zudem bezahlen alle Mitglieder einen jährlichen Beitrag. Nebenbei macht eine Firma Fundraising, diese animiert andere Betriebe, PluSport zu unterstützen, damit solche Anlässe möglich werden und Sportlerinnen mit einer Einschränkung die nötige Unterstützung zum Sport treiben bekommen.
 
@@ -51,9 +51,9 @@ Sein erster Berührungspunkt mit der Organisation PluSport erfolgte im Sportstud
 
 PluSport Schweiz wurde 1960 zur Unterstützung von Menschen mit unterschiedlichen Arten von Beeinträchtigungen gegründet. Das Hauptziel war es, Sportleistungen für Menschen mit Beeinträchtigung anzubieten. Noch heute gehört dies zum Kerngeschäft von PluSport. Natürlich engagiert sich der Behindertensportverband auch für Inklusion im und durch Sport. Der Fachbereich Inklusion, in dem Reto Planzer beschäftigt ist, hat 220 Stellenprozente. Für Reto Planzer ist Inklusion ein wichtiger Bestandteil seines Lebens. Inklusion bedeutet für ihn: 
 
-*«…im Grundsatz, dass alle die möchten auch teilhaben können. Inklusion ist ein wechselseitiger Prozess. Zum Gelingen sollen alle involvierten Personen ihren Beitrag leisten.»*
-
-*\- Reto Planzer*
+> *«…im Grundsatz, dass alle die möchten auch teilhaben können. Inklusion ist ein wechselseitiger Prozess. Zum Gelingen sollen alle involvierten Personen ihren Beitrag leisten.»*
+>
+> *\- Reto Planzer*
 
 Er ist momentan zuständig für die Kooperation mit Sportverbänden und ist regelmässig in Kontakt mit der Fachstelle Inklusion von Swiss Olympics, dem Dachverband der Schweizer Sportverbände. Immer mehr Verbände versuchen Menschen mit Beeinträchtigung zu integrieren. Um ins Handeln zu kommen, fehlen jedoch die Ressourcen und oftmals auch das Know-how. PluSport setzt hier an und bietet den Sportvereinen verschiedene Dienstleistungen ganz nach dem Motto: «Hilf mir, es selbst zu tun». Auch Eltern von Kindern mit Beeinträchtigung, die sich auf der Suche nach passenden Sportangeboten an PluSport wenden, werden ermutigt, sich an die Regelsportvereine zu wenden. Der Versuch, dass diese Sportler*innen inkludiert werden können, ist ein längerer Prozess. Die Schweiz ist in der Inklusion nicht so weit wie zum Beispiel England oder Deutschland. Diese beiden Länder mussten sich nach dem zweiten Weltkrieg intensiv mit dem Thema auseinandersetzen, da es sehr viele Kriegsversehrte gab. Ebenso übernehmen die USA in diesem Bereich eine Vorreiterrolle. 
 Die Gesellschaft sowie das Sportsystem Schweiz ist gefordert, mehr zu investieren, damit Sportlerinnen mit Beeinträchtigung noch besser und erfolgreicher integriert werden können.
