@@ -32,10 +32,10 @@ Dann arbeiten wir mit dem Schweizerischen Dachverband, zusammen und versuchen di
 Auf der anderen Seite werden wir von Eltern angefragt, die ein Kind mit einer Beeinträchtigung haben, welches gerne Sport treiben möchte. Diese Familien unterstützen wir dabei die bestmögliche Lösung zu finden damit das Kind Sport treiben kann. Der Versuch diese Sportlerinnen zu inkludieren ist ein längerer Prozess und mit Aufwand verbunden.
 
 #### PluSport ist der Meinung damit Inklusion tatsächlich gelebt werden kann, gibt es noch einiges zu tun, wie siehst du das und was gibt es noch zu tun?
-
 Ich bin mit meiner Erfahrung so weit, dass ich sage, klar gibt es noch viel zu tun. Die Schweiz ist noch nicht so weit wie andere Länder. Jedoch wurde aber auch schon viel getan. Ein Grund ist, dass wir keine Kriegsvergangenheit haben, wie zum Beispiel England oder Deutschland. In der Schweiz hat die Inklusion erst später angefangen und deswegen muss man auch etwas Geduld mitbringen.
 
 #### Es gibt das Laufprojekt «never Walk alone», was genau ist die Idee davon und wieso gestaltet sich gerade so ein Anlass attraktiv für Beeinträchtigte Sportler*innen? 
+
 Laufsport zählt zu den beliebtesten Sportarten in der Schweiz. An dieser Veranstaltung können Alle zusammenlaufen, mit oder ohne Beeinträchtigung und das ist das Schöne. 
 
 #### Welche Herausforderungen gibt es?
