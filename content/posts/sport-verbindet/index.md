@@ -36,6 +36,8 @@ Der grösste und wichtigste Anlass ist der jährliche stattfindende PluSport-Tag
 {{<box>}}
 
 **Reto Planzer**
+
+
 Sein erster Berührungspunkt mit der Organisation PluSport erfolgte im Sportstudium an der Eidg. Hochschule für Sport in Magglingen, als er 2019 im Rahmen des Fachstudiums Adapted Physical Activity (APA) ein Praktikum in einem Wintersportcamp für Erwachsene mit geistiger Beeinträchtigung bei PluSport gemacht hat. Besonders Freude an seinem Job macht ihm das soziale Engagement im Bereich Bewegung und Sport und dass er mit seiner Arbeit dazu beiträgt, Menschen mit einer Beeinträchtigung einen verbesserten Zugang zu Bewegung und Sport in der Schweizer Sportlandschaft zu ermöglichen. Seine Funktionen bei PluSport sind sehr vielfältig. Neben der Betreuung der Kooperation mit Sportverbänden und -akteuren organisiert und leitet er Weiterbildungskurse. Zudem hat er die Projektleitung für die Projekte «Never Walk Alone» und «PluSport@school».
 
 {{</box>}}
@@ -49,10 +51,13 @@ Die Gesellschaft sowie das Sportsystem Schweiz ist gefordert, mehr zu investiere
 {{<box>}}
 
 **PluSport@school**
+
+
 Dieses Projekt hat zum Ziel, das Schülerinnen und Schüler mit Beeinträchtigung möglichst am obligatorischen Sportunterricht in Regelschulen mitmachen können. Damit dies gelingt, ist eine diversitätssensible Einstellung der Sportlehrpersonen und der Schule zentral. Hier unterstützt PluSport mit verschiedenen Dienstleistungen, wie zum Beispiel Praxisworkshops mit Botschafter*innen, Weiterbildungen für Betreuungs- und Lehrpersonen oder Mitorganisation eines Sporttages.
 
 {{</box>}}
 
-\####PluSport für Inklusion und Vielfalt im Sport
+#### PluSport für Inklusion und Vielfalt im Sport
+
 PluSport hat schon viel erreicht, aber noch lange nicht genug. So will PluSport weiterhin die Inklusion von Beeinträchtigten fördern, so wie die Zusammenarbeit im Sportsystem, dass alle die gleiche Sprache sprechen. Ein weiteres Ziel ist es, dass in Zukunft Sportverbände selbst viel mehr zur Inklusion beitragen und PluSport nicht mehr die Vermittlerrolle übernehmen muss, sondern als Kompetenzstelle zur Verfügung steht. PluSport will sich in vielen Bereichen noch weiter entwickeln. 
 Der diesjährige «Run and Walk» in Bern neigt sich dem Ende zu, die Leute fallen sich in die Arme, sind glücklich und freuen sich miteinander über ihre Leistungen. Einmal mehr zeigt sich, dass solche Anlässe verbinden. Zusammen Sport treiben fördert die Inklusion, Sport bietet eine gute Plattform zur Begegnung, egal ob beeinträchtigt oder nicht. Auf diese Weise kann die Gesellschaft sensibilisiert werden und mehr Toleranz für alle geschaffen werden.
