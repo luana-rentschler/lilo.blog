@@ -69,5 +69,4 @@ Dieses Projekt hat zum Ziel, das Schüler\*innen mit Beeinträchtigung möglichs
 
 PluSport hat schon viel erreicht, aber noch lange nicht genug. So will PluSport weiterhin die Inklusion von Beeinträchtigten fördern, so wie die Zusammenarbeit im Sportsystem, dass alle die gleiche Sprache sprechen. Ein weiteres Ziel ist es, dass in Zukunft Sportverbände selbst viel mehr zur Inklusion beitragen und PluSport nicht mehr die Vermittlerrolle übernehmen muss, sondern als Kompetenzstelle zur Verfügung steht. PluSport will sich in vielen Bereichen noch weiter entwickeln. 
 
-
 Der diesjährige «Run and Walk» in Bern neigt sich dem Ende zu, die Leute fallen sich in die Arme, sind glücklich und freuen sich miteinander über ihre Leistungen. Einmal mehr zeigt sich, dass solche Anlässe verbinden. Zusammen Sport treiben fördert die Inklusion, Sport bietet eine gute Plattform zur Begegnung, egal ob beeinträchtigt oder nicht. Auf diese Weise kann die Gesellschaft sensibilisiert werden und mehr Toleranz für alle geschaffen werden.
