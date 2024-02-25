@@ -61,7 +61,7 @@ Die Gesellschaft sowie das Sportsystem Schweiz ist gefordert, mehr zu investiere
 {{<box>}}
 
 **PluSport@school** \
-Dieses Projekt hat zum Ziel, das Schülerinnen und Schüler mit Beeinträchtigung möglichst am obligatorischen Sportunterricht in Regelschulen mitmachen können. Damit dies gelingt, ist eine diversitätssensible Einstellung der Sportlehrpersonen und der Schule zentral. Hier unterstützt PluSport mit verschiedenen Dienstleistungen, wie zum Beispiel Praxisworkshops mit Botschafter*innen, Weiterbildungen für Betreuungs- und Lehrpersonen oder Mitorganisation eines Sporttages.
+Dieses Projekt hat zum Ziel, das Schüler\*innen mit Beeinträchtigung möglichst am obligatorischen Sportunterricht in Regelschulen mitmachen können. Damit dies gelingt, ist eine diversitätssensible Einstellung der Sportlehrpersonen und der Schule zentral. Hier unterstützt PluSport mit verschiedenen Dienstleistungen, wie zum Beispiel Praxisworkshops mit Botschafter\*innen, Weiterbildungen für Betreuungs- und Lehrpersonen oder Mitorganisation eines Sporttages.
 
 {{</box>}}
 
