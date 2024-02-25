@@ -25,7 +25,7 @@ Diese sind aktuell sehr vielfältig. Im Moment betreue ich vor allem die Koopera
 
 #### Was waren die Hauptziele bei der Gründung und wie haben diese sich mit der Zeit verändert?
 
-PluSport wurde 1960 gegründet, um in der Schweiz Sportangebote und Sportleistungen für Menschen mit einer Beeinträchtigung anzubieten. Dies gehört noch heute zum Kerngeschäft. PluSport unterscheidet sich insofern von anderen Organisationen wie, der schweizerischen Paraplegien Versicherung oder Rollstuhlsport Schweiz, dass viele Menschen mit unterschiedlichen Beeinträchtigungen Unterstützung bekommen. Bei uns treiben Rollstuhlfahrende Sport, Leute mit Amputationen, mit einer Geistigen Beeinträchtigung oder mit Autismus. Für diese organisieren wir Sportangebote. In den letzten Jahren sind mehr Dienstleistungen dazu gekommen, beispielsweise das Projekt «never Walk alone».
+PluSport wurde 1960 gegründet, um in der Schweiz Sportangebote und Sportleistungen für Menschen mit einer Beeinträchtigung anzubieten. Dies gehört noch heute zum Kerngeschäft. PluSport unterscheidet sich insofern von anderen Organisationen wie, der schweizerischen Paraplegien Versicherung oder Rollstuhlsport Schweiz, dass viele Menschen mit unterschiedlichen Beeinträchtigungen Unterstützung bekommen. Bei uns treiben Rollstuhlfahrende Sport, Leute mit Amputationen, mit einer Geistigen Beeinträchtigung oder mit Autismus. Für diese organisieren wir Sportangebote. In den letzten Jahren sind mehr Dienstleistungen dazu gekommen, beispielsweise das Projekt «never walk alone».
 
 #### Wie unterstützt PluSport seine Sportler\*innen? Wie versucht PluSport die beeinträchtigten Sportler\**inne zu inkludieren?
 
