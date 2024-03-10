@@ -25,7 +25,7 @@ Diese sind aktuell sehr vielfältig. Im Moment betreue ich vor allem die Koopera
 
 #### Was waren die Hauptziele bei der Gründung und wie haben diese sich mit der Zeit verändert?
 
-PluSport wurde 1960 gegründet, um in der Schweiz Sportangebote und Sportleistungen für Menschen mit einer Beeinträchtigung anzubieten. Dies gehört noch heute zum Kerngeschäft. PluSport unterscheidet sich insofern von anderen Organisationen wie der schweizerischen Paraplegien Versicherung oder Rollstuhlsport Schweiz, dass viele Menschen mit unterschiedlichen Beeinträchtigungen Unterstützung bekommen. Bei uns treiben Rollstuhlfahrende Sport, Leute mit Amputationen, mit einer geistigen Beeinträchtigung oder mit Autismus. Für diese organisieren wir Sportangebote. In den letzten Jahren sind mehr Dienstleistungen dazu gekommen, beispielsweise das Projekt «never walk alone».
+PluSport wurde 1960 gegründet, um in der Schweiz Sportangebote und Sportleistungen für Menschen mit einer Beeinträchtigung anzubieten. Dies gehört noch heute zum Kerngeschäft. PluSport unterscheidet sich insofern von anderen Organisationen wie der schweizerischen Paraplegien Versicherung oder Rollstuhlsport Schweiz, dass viele Menschen mit unterschiedlichen Beeinträchtigungen Unterstützung bekommen. Bei uns treiben Rollstuhlfahrende Sport, Leute mit Amputationen, mit einer geistigen Beeinträchtigung oder mit Autismus. Für diese organisieren wir Sportangebote. In den letzten Jahren sind mehr Dienstleistungen dazu gekommen, beispielsweise das Projekt «never Walk alone».
 
 #### Wie unterstützt PluSport seine Sportler\*innen und wie versucht PluSport die beeinträchtigten Sportler\*innen zu inkludieren?
 
@@ -37,7 +37,7 @@ Auf der anderen Seite werden wir von Eltern angefragt, die ein Kind mit einer Be
 
 Ich bin mit meiner Erfahrung so weit, dass ich sage, klar gibt es noch viel zu tun. Die Schweiz ist noch nicht so weit wie andere Länder. Jedoch wurde aber auch schon viel getan. Ein Grund ist, dass wir keine Kriegsvergangenheit haben, wie zum Beispiel England oder Deutschland. In der Schweiz hat die Inklusion erst später angefangen und deswegen muss man auch etwas Geduld mitbringen.
 
-#### Es gibt das Laufprojekt «never walk alone», was genau ist die Idee davon und wieso gestaltet sich gerade so ein Anlass attraktiv für Beeinträchtigte Sportler*innen?
+#### Es gibt das Laufprojekt «never Walk alone», was genau ist die Idee davon und wieso gestaltet sich gerade so ein Anlass attraktiv für Beeinträchtigte Sportler*innen?
 
 Laufsport zählt zu den beliebtesten Sportarten in der Schweiz. An dieser Veranstaltung können Alle zusammenlaufen, mit oder ohne Beeinträchtigung und das ist das Schöne. 
 
