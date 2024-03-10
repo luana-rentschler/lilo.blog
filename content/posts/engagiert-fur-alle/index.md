@@ -31,7 +31,7 @@ PluSport wurde 1960 gegründet, um in der Schweiz Sportangebote und Sportleistun
 
 Die Sportler*innen sind bei uns Mitglied und können vergünstigt an Sportcamps teilnehmen. Unter anderem gibt es einen Prothesen Fond. Dieser Fond unterstützt Menschen finanziell die eine spezielle Beinprothesen benötigen. Eine Beinprothese kosten in der Regel ungefähr so viel wie ein Kleinwagen, zwischen 15'000 und 20'000 Franken.
 Dann arbeiten wir mit dem Schweizerischen Dachverband, zusammen und versuchen die Verbandsführung zu überzeugen, dass es gesellschaftlich wichtig ist und Mehrwert bringt, Menschen mit einer Beeinträchtigung im Verband aufzunehmen. 
-Auf der anderen Seite werden wir von Eltern angefragt, die ein Kind mit einer Beeinträchtigung haben, welches gerne Sport treiben möchte. Diese Familien unterstützen wir dabei die bestmögliche Lösung zu finden damit das Kind Sport treiben kann. Der Versuch diese Sportler*innen zu inkludieren ist ein längerer Prozess und mit Aufwand verbunden.
+Auf der anderen Seite werden wir von Eltern angefragt, die ein Kind mit einer Beeinträchtigung haben, welches gerne Sport treiben möchte. Diese Familien unterstützen wir dabei die bestmögliche Lösung zu finden damit das Kind Sport treiben kann. Der Versuch diese Sportlerinnen zu inkludieren ist ein längerer Prozess und mit Aufwand verbunden.
 
 #### PluSport ist der Meinung damit Inklusion tatsächlich gelebt werden kann, gibt es noch einiges zu tun, wie siehst du das und was gibt es noch zu tun?
 
