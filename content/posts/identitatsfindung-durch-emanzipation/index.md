@@ -1,5 +1,5 @@
 +++
-title = "### Identitätsfindung durch Emanzipation"
+title = "Identitätsfindung durch Emanzipation"
 date = "2024-10-21"
 draft = false
 pinned = false
